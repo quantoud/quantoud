@@ -1,7 +1,7 @@
-- 👋 Hi, I’m @quantoud
+-  I’m @quantoud
 - 
-- 🌱 I’m currently learning nothing jus skiddin
+-  I’m currently learning nothing, jus skiddin
 - 
-- 📫 How to reach me my tele is https://t.me/de3thy
+-  How to reach me  https://t.me/de3thy
 - 
 - 
